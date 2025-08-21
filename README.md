@@ -6,6 +6,8 @@ Whether you’re a curious beginner exploring the basics or an experienced profe
 
 TOYZ.Ai is built with simplicity in mind, offering a clean, distraction-free interface and intuitive features that make powerful AI accessible to everyone. From generating ideas and troubleshooting problems to building fully functional applications, TOYZ.Ai is here to remove roadblocks and unlock your creative flow.
 
+And the best part? It’s completely FREE. No hidden costs, no trial periods — just powerful AI tools available to everyone, anytime.
+
 At its core, TOYZ.Ai is about empowerment — giving you the confidence to explore new directions, experiment boldly, and achieve more than you thought possible. It’s not just a tool, it’s your partner in creation.
 
-Create smarter. Learn faster. Build bigger. That’s TOYZ.Ai.
+Create smarter. Learn faster. Build bigger. All for FREE with TOYZ.Ai.
